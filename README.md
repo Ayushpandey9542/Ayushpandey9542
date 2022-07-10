@@ -1,3 +1,6 @@
+<a href="https://t.me/Ftx00"><img align='centre' src='https://c.tenor.com/SpDpac3s-ccAAAAC/anime-boy.gif' width='200"'> </a>
+
+
 - 👋 Hi, I’m @Ayushpandey9542
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
